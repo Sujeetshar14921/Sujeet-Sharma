@@ -1,4 +1,4 @@
-Hii... 👋, I'm Imran Alam
+Hii... 👋, I'm Sujeet Sharma 
 A passionate Full-Stack developer  || Data Analyst
 
 Email Me 👉 ✉️ sujeetsharmadc56@gmail.com For Collaboration/Project or Anything Else. 😊😊
